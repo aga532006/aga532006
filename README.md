@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @aga532006
+- 👀 I’m interested in idk, i'm still trying to adapt to this (I'm a spanish girl trying to translate a whole page in her mind. It's difficult)
+- 🌱 I’m currently stucying Secondary School but in my free time I like to read and learn music and programation
+- 📫 How to reach me: I'm arig_acosta on Instagram if you want to ask me something or help me because I'm lost here.
